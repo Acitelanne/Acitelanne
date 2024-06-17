@@ -9,4 +9,4 @@
  
  analeticiamartins336@gmail.com
 
-![](https://tenor.com/pt-BR/view/welcome-gif-23701526)
+![](https://media1.tenor.com/m/qEV9igsXP4YAAAAC/welcome.gif)
